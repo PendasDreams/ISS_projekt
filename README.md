@@ -1,1 +1,1 @@
-This is Elon Musk
+Signály a systémy
